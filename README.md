@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning about Digital progam and Algorythm
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me ... Discord and phone call
-- 😄 Pronouns: him/he/his
+- 😄 Pronouns: him/he/his/they/them/croissant
 - ⚡ descriptions about myself: i am bisexual, i have depression, i am diagnose to ADHD and autism
 
 <!--- 
