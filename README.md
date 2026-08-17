@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Te Ariki Vermeeren
+- 👋 Hi, I’m Te Ariki Paki
 - 👀 I’m interested in gaming, sailing and drawing
 - 🌱 I’m currently learning about Digital progam and Algorythm
 - 💞️ I’m looking to collaborate on nothing
