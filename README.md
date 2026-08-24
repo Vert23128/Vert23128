@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaming, sailing and drawing
 - 🌱 I’m currently learning about Digital progam and Algorythm
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me ... Discord and phone call
+- 📫 How to reach me on Discord and Gmail
 - 😄 Pronouns: him/he/his/they/them/croissant
 - ⚡ descriptions about myself: i am bisexual, i have depression, i am diagnose to ADHD and autism
 
